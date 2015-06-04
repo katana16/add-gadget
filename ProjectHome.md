@@ -1,0 +1,1 @@
+file java for all gadgats on blogger
